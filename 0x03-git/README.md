@@ -1,1 +1,1 @@
-okari nyandika
+okari
